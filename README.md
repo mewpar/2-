@@ -52,3 +52,7 @@
 Сертификаты
 
 ✅ траектория будущего 24-25 - https://drive.google.com/drive/folders/1aM66YM8K0wVGJXaeIrwcqI_TYMiBQM44?usp=sharing
+
+
+
+✅ Лужники - https://docs.google.com/document/d/11Yz9CenxmcuN1u0WCO8rp8BFHn-cmKyDz2j9nMKbvHw/edit?usp=sharing
